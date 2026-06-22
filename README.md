@@ -1,4 +1,4 @@
-*
+
 Hey, I'm Priyaa 👋🏻
 
 🎓 2nd Year AI & ML Student | Physics Student | Passionate About Technology & Innovation
